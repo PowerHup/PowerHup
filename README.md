@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **powerhup11@gamil.com**
 
-- ⚡ My Favorite Games **Persona 5 Royal,Pal World,The Legend of Zelda...**
+- ⚡ My Favorite Games **Persona 5 Royal, Pal World, The Legend of Zelda...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
